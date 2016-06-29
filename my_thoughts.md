@@ -21,6 +21,8 @@ Sperm is the same in 16, 20, 30, 40, 50 and even 90 years. Males, unlike females
 
 The main point is: you will loose your best years as a babysitter if you have not brave enough to break up.
 
+<img src="https://pbs.twimg.com/media/Cltv9rfWEAATBFp.jpg">
+
 --> With due respect to the other side of this argument, becoming a parent at a younger age has a wealth of advantages. 
 
 Most important, young parents have the advantage of energy and youth. When you have a child at a young age, you are more than likely still able to run alongside your child, pick them up, spin them around, and do it all over again. You just don't have the same energy in your 20s 30s 40s or 50s. 
